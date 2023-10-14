@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tamal-das07
 - 👀 I’m interested in Business.
-- 🌱 currently I’m an entrepreneur.
+- 🌱 currently I’m an entrepreneur & freelancer whith digital marketing.
 - 💞️ I’m looking to collaborate with anyone which serious about business.
 
 <!---
